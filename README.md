@@ -5,5 +5,5 @@
 - 🤔 I’m looking for help with ChatGTP
 - 💬 Ask me about Netflix
 - 📫 How to reach me: carliytos
-- 😄 Pronouns: je
+- 😄 Pronouns: He
 - ⚡ Fun fact: Winrar
